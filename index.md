@@ -1,1 +1,1 @@
-Shum shum, slippedy dop!
+Shum shum, shlippedy dop!
